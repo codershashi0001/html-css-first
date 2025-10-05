@@ -15,4 +15,6 @@
       another city for your higher studies then waha bhi friends banege then fir tum new friends ke   
       sath jayada rehte hai, glt way mein nhi jana hai ki old frds ki importance kam nhi hoti .  
        i know very well it a example. if you hurt from my example then **sorry**
-     
+
+
+## this is the short intro.
